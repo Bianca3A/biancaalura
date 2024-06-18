@@ -13,4 +13,4 @@ Meu nome é Maria Bianca
 
 @alurastartestudante
 
-![](https://tenor.com/bJo8u.gif)
+![](https://tenor.com/pt-BR/view/jungkook-kookie-jk-bts-bangtan-gif-23175372)
